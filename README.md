@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @MrDocument
+- 👀 I’m interested in programming, games and movies
+- 🌱 I’m currently at 7th grade
+- 📫 Contact me: mrdocument7710@gmail.com
